@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @9baller47
 - 👀 I’m interested in ...Cc Top Ups
-- 🌱 I’m currently learning ...bank log spamming
+- 🌱 I’m currently learning ...ICK BTC
 - 💞️ I’m looking to collaborate on ...Spamming bank logs
 - 📫 How to reach me ...robertgold5010@gmail.com
 
